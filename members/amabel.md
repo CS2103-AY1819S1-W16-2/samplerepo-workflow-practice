@@ -1,6 +1,7 @@
 # Amabel Yeo
 
 ## Education
+NYP
 
 ## Work Experience
 
