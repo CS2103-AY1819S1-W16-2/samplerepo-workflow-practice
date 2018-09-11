@@ -1,4 +1,4 @@
-# John Doe
+# Amabel Yeo
 
 ## Education
 
